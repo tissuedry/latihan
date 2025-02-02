@@ -4,4 +4,3 @@
 
 # AING MAUUUUUUUNG
 # AING HAYANG DAHAR
-wkwkwkwkwkwk
