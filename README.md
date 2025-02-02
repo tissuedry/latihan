@@ -4,4 +4,4 @@
 
 # AING MAUUUUUUUNG
 # AING HAYANG DAHAR
-gaboleh kasar
+wkwkwkwkwkwk
